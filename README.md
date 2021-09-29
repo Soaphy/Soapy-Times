@@ -1,5 +1,6 @@
 ### To Clarify
-  To clarify my name is Sophia, but a multitude of people call me Soap, Soph, Sophie, or, very rarely, sushi.
+ 
+To clarify my name is Sophia, but a multitude of people call me Soap, Soph, Sophie, or, very rarely, sushi.
 
 
 
