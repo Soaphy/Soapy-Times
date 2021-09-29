@@ -1,10 +1,11 @@
-### To Clarify
+                           # To Clarify
  
-To clarify my name is Sophia, but a multitude of people call me Soap, Soph, Sophie, or, very rarely, sushi.
+To clarify my name is Sophia, but a multitude of people call me Soap, Soph, Sophie, or, very rarely, sushi. Unlike my name, I only have one dream and that's to be rich. Although not any type of rich, wealthy enough to safely purchase the Pikachu illustrator card, worth approximately 3 million dollars. There are only 9 manufactured in the world...  
 
+---------------------------------------------------------------------------------------
 
-
-
+##Treasures
+I value and only value
 
 
 
