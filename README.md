@@ -1,3 +1,14 @@
+### To Clarify
+  To clarify my name is Sophia, but a multitude of people call me Soap, Soph, Sophie, or, very rarely, sushi.
+
+
+
+
+
+
+
+
+
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/Soaphy/Soapy-Times/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
