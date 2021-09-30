@@ -1,11 +1,13 @@
-                           # To Clarify
+# To Clarify
  
-To clarify my name is Sophia, but a multitude of people call me Soap, Soph, Sophie, or, very rarely, sushi. Unlike my name, I only have one dream and that's to be rich. Although not any type of rich, wealthy enough to safely purchase the Pikachu illustrator card, worth approximately 3 million dollars. There are only 9 manufactured in the world...  
+To clarify my name is Sophia, but a multitude of people call me Soap, Soph, Sophie, or, very rarely, sushi. Unlike my name, I only have one dream and that's to be rich. Although not any type of "rich", I desire enough wealth to safely purchase the Pikachu illustrator card, worth approximately 3 million dollars. With only 39 maunfacured, its a rarity and an honor to own one. Aside frm this one dream, I work towards being a successful electrical engineer, and enjoy the beach and summer weather  
+![Pikachu Illustrator Card](https://user-images.githubusercontent.com/91572144/135511602-93906252-ffe1-4616-ad8c-ace9b67739c8.png)
 
----------------------------------------------------------------------------------------
+
+Syntax highlighted code black
 
 ##Treasures
-I value and only value
+I value many things in life. Too many to count. From clothes to video games to _One Piece_. But the one thing reining above it all is not family or friends, but... my **Egyptian Mew Card**. Although it's dented, I still treat it with love and care. I even check up on it once a week or so. 
 
 
 
