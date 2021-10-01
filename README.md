@@ -1,5 +1,5 @@
 # To Clarify
-> To clarify my name is Sophia, but a multitude of people call me Soap, Soph, Sophie, or, very rarely, sushi. Unlike my name, I only have one dream and that's to be rich. Although not any type of "rich", I desire enough wealth to safely purchase the Pikachu illustrator card, worth approximately 3 million dollars. With only 39 maunfacured, its a rarity and an honor to own one. Aside frm this one dream, I work towards being a successful electrical engineer, and enjoy the beach and summer weather  
+> To clarify my name is Sophia, but a multitude of people call me Soap, Soph, Sophie, or, very rarely, sushi. Unlike my name, I only have one dream and that's to be rich. Although not any type of "rich", I desire enough wealth to safely purchase the Pikachu illustrator card, worth approximately 3 million dollars. With only 39 maunfacured, its a rarity and an honor to own one. Aside frm this one dream, I work towards being a successful electrical engineer, and enjoy the beach and summer weather. <
 
 ![Pikachu Illustrator Card](https://user-images.githubusercontent.com/91572144/135511602-93906252-ffe1-4616-ad8c-ace9b67739c8.png)
 
