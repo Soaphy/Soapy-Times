@@ -5,7 +5,7 @@
 
 
 ## **Treasures**  
-> I value many things in life. Too many to count. From clothes to video games to _One Piece_. But the one thing reining above it all is not family or friends, but... my **Egyptian Mew Card**. Although it's dented, I still treat it with love and care. I even check up on it once a week or so. 
+![Egyptian Mew](https://user-images.githubusercontent.com/91572144/135511941-7ec02a39-1298-4d4f-8e57-dbc102823aa7.png)> I value many things in life. Too many to count. From clothes to video games to _One Piece_. But the one thing reining above it all is not family or friends, but... my **Egyptian Mew Card**. Although it's dented, I still treat it with love and care. I even check up on it once a week or so. 
 
 ![Egyptian Mew](https://user-images.githubusercontent.com/91572144/135511941-7ec02a39-1298-4d4f-8e57-dbc102823aa7.png)
 
