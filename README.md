@@ -17,6 +17,6 @@
 ![Volleyball Girl](https://user-images.githubusercontent.com/91572144/135561665-06e2578f-0c65-4267-b007-8ca55ca009c2.png) ![Robot I'm currently building and procrastinating on](https://user-images.githubusercontent.com/91572144/135561834-8ae150aa-88f4-45c7-873b-ee6c0af3fcc7.png)
 
 ###### For Information about the Pikachu Illustrator Card click here:
-> -https://www.ebay.com/itm/362931142416 
-> -https://www.psacard.com/cardfacts/non-sports-cards/1998-nintendo-pokemon-japanese-promo/pikachu-holo-illustrator/640820
-> -https://www.antiquetrader.com/collectibles/five-most-valuable-pok%C3%A9mon-cards
+-https://www.ebay.com/itm/362931142416 
+-https://www.psacard.com/cardfacts/non-sports-cards/1998-nintendo-pokemon-japanese-promo/pikachu-holo-illustrator/640820
+-https://www.antiquetrader.com/collectibles/five-most-valuable-pok%C3%A9mon-cards
