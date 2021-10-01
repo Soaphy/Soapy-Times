@@ -5,7 +5,7 @@
 
 
 ## **Treasures**  
-![Egyptian Mew](https://user-images.githubusercontent.com/91572144/135511941-7ec02a39-1298-4d4f-8e57-dbc102823aa7.png)> I value many things in life. Too many to count. From clothes to video games to _One Piece_. But the one thing reining above it all is not family or friends, but... my **Egyptian Mew Card**. Although it's dented, I still treat it with love and care. I even check up on it once a week or so. 
+> I value many things in life. Too many to count. From clothes to video games to _One Piece_. But the one thing reining above it all is not family or friends, but... my **Egyptian Mew Card**. Although it's dented, I still treat it with love and care. I even check up on it once a week or so. 
 
 ![Egyptian Mew](https://user-images.githubusercontent.com/91572144/135511941-7ec02a39-1298-4d4f-8e57-dbc102823aa7.png)
 
@@ -16,3 +16,7 @@
 
 ![Volleyball Girl](https://user-images.githubusercontent.com/91572144/135561665-06e2578f-0c65-4267-b007-8ca55ca009c2.png) ![Robot I'm currently building and procrastinating on](https://user-images.githubusercontent.com/91572144/135561834-8ae150aa-88f4-45c7-873b-ee6c0af3fcc7.png)
 
+###### For Information about the Pikachu Illustrator Card click here:
+> -https://www.ebay.com/itm/362931142416 
+> -https://www.psacard.com/cardfacts/non-sports-cards/1998-nintendo-pokemon-japanese-promo/pikachu-holo-illustrator/640820
+> -https://www.antiquetrader.com/collectibles/five-most-valuable-pok%C3%A9mon-cards
